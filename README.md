@@ -75,7 +75,7 @@ Surgery could be required for certain people, especially if they are suffering f
 
 Conclusion:
 Although atrial fibrillation is a dangerous illness, it may be managed well to lessen symptoms, avoid consequences, and have a normal life. See your doctor for a precise diagnosis and to learn about the most appropriate course of action for treating AFib if you exhibit symptoms or have risk factors for the illness. Many people can successfully manage atrial fibrillation and enhance their general heart health by combining medical treatment with lifestyle modifications.
-You can visit our site: Applyatjob.com
- https://applyatjob.com/hiring-employee
+You can visit our site: Applyatjob.com<br>
+ https://applyatjob.com/hiring-employee<br>
 
 https://applyatjob.com/jobs
